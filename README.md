@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RangerGamer-dt21
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning Python
-- 📫 How to reach me (no way)
+- 📫 How to reach me Whatsapp
 - 😄 Pronouns: Human,Gamer,Youtuber,He,Him,OnePiece_fan
 - ⚡ Fun fact: I am a Human
 
