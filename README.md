@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @RangerGamer-dt21
-- 👀 I’m interested in gaming
-- 🌱 I’m currently learning Python
+- 👋 Hi, I’m Uday Viyaan. K
+- 👀 I’m interested in Law
+- 🌱 I’m currently learning AI web Development
 - 📫 How to reach me Whatsapp
 - 😄 Pronouns: Human,Gamer,Youtuber,He,Him,OnePiece_fan
 - ⚡ Fun fact: I am a Human
